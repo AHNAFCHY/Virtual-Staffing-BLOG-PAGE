@@ -12,4 +12,4 @@
 
 #### Outsourcing work to virtual staff at 247virtual-staffing allows you to eliminate these costs. As you are contracting staff from us, you only pay for their salaries, nothing else.
 
-![image of virtual assistant HD](https://www.google.com.bd/url?sa=i&source=imgres&cd=&cad=rja&uact=8&ved=2ahUKEwj76bGpkcfkAhWNfH0KHb6QAuMQjRx6BAgBEAQ&url=https%3A%2F%2Fwww.pngfind.com%2Fmpng%2FiJiRTow_personal-assistant-graphic-hd-png-download%2F&psig=AOvVaw2YGdxc2w9ny3U2TBM8EWqo&ust=1568235148690657)
+![image](https://lh3.googleusercontent.com/vakOdlR5Paur_B23ysXKwlQ5Fm3Ltk6NqnpCzK1HvnGT4zCEqMQS71dRGU4NBx436INcLbk=s113)
