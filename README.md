@@ -9,4 +9,5 @@
 3. Employee Tax
 4. Office space
 5. Desk and computer equipment and more.
+
 #### Outsourcing work to virtual staff at 247virtual-staffing allows you to eliminate these costs. As you are contracting staff from us, you only pay for their salaries, nothing else.
